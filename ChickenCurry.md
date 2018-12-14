@@ -27,3 +27,4 @@ Cooking duration: 45 minutes for marinating and 30 minutes for cooking.
 4. After the onions turn golden brown add the marinated chicken.
 5. When the chicken in almost done (95%) add the spice powder.
 6. Cook until the meat is tender.
+enjoy!
